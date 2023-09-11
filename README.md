@@ -1,1 +1,1 @@
-# LMinscriptions
+# Inscriptions of Lepcis Magna
